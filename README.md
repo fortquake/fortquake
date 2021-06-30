@@ -1,0 +1,5 @@
+- I'm Fort Quake
+- I’m interested in video games, software and hardware, esp. python, ray tracing, benchmarking, and Razer
+- I’m currently learning c++, java
+- I'm looking to collaborate on nothing, but send me a message on twitter @fortquake
+- Hw to reach me twitter @fortquake, discord Fort Quake#3107, reddit u/fortquake, youtube bit.ly/fortquake; you get the idea
